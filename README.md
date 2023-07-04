@@ -1,1 +1,1 @@
-# duluthtradingco
+# Duluth Trading Co. Promotional Email
